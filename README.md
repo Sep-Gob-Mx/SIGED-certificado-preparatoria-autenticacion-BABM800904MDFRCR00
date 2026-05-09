@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BABM800904MDFRCR00
+BABM800904MDFRCR00
